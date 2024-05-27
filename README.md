@@ -9,5 +9,3 @@
 📫 Contact Me: You can reach me via email at Azmatullah1177@gmail.com.
 
 ⚡ Fun Fact: I love combining technology with creative solutions to solve real-world problems. In my free time, I enjoy watching the latest trends in tech and experimenting with new programming languages.
-
-
