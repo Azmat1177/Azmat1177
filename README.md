@@ -8,4 +8,4 @@ Looking to Collaborate On: I'm eager to collaborate on projects related to IoT a
 
 Contact Me: You can reach me via email at Azmatullah1177@gmail.com.
 
-Fact: I love combining technology with creative solutions to solve real-world problems. In my free time, I enjoy staying up-to-date with the latest trends in technology and experimenting with new programming languages.
+Fact: I love integrating technology with creative solutions to solve real-world problems. In my free time, I enjoy staying up-to-date with the latest trends in technology and experimenting with new programming languages.
