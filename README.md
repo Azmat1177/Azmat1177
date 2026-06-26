@@ -4,7 +4,7 @@ Interests: I'm passionate about Blockchain Technology and its potential to revol
 
 Currently Learning: I'm currently enhancing my skills in Python, with a focus on its applications in Blockchain and the Internet of Things (IoT).
 
-Looking to Collaborate On: I'm eager to collaborate on projects related to IoT and Blockchain. If you have any interesting ideas or projects, feel free to reach out!
+Looking to Collaborate On: I'm eager to collaborate on projects related to AI, IoT and Blockchain. If you have any interesting ideas or projects, feel free to reach out!
 
 Contact Me: You can reach me via email at Azmatullah1177@gmail.com.
 
